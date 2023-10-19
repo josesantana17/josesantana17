@@ -1,4 +1,4 @@
-- 👋, ola amazon prime, juntos famosos negocio
+- 👋, ola amazon prime, juntos fazemos negocio
 - 
 - 👀  ...para trabalha com nosco 
 - 🌱  ...seu número de telefone? 
